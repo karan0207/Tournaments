@@ -9,3 +9,14 @@ THERE IS NO ENTRY FEE FOR THE EVENT!
 Be sure to Pre-Register NOW to secure your spot and be able to compete for fun, bragging rights, and your share of the $250 prize pool!
 
 **Link:** [Tournament link](https://play.toornament.com/en_US/tournaments/4872197102838915072/)
+
+## COD Mobile Cup 
+
+**Description:** This 5v5 CoD Mobile (Asia) Tournament with Minidox and Sage eSports will begin Tuesday, July 28th, 2021 at 6PM IST.
+
+THERE IS NO ENTRY FEE FOR THE EVENT!
+
+Be sure to Pre-Register NOW to secure your spot and be able to compete for fun, bragging rights, and your share of the cash prize pool!
+
+**Link:** [Tournament link](https://play.toornament.com/en_US/tournaments/4796466294587269120/)
+
